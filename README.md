@@ -18,7 +18,6 @@ Here are some ideas to get you started:
 
 ## 我是by  🧊
 - 🌱 I’m currently learning in CUMT.
-- 🏡 作品：暂无| 求星星 ✨
 - 💬 微信：yanbingcumt
 - 👬 QQ :2814825681
 
