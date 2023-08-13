@@ -18,7 +18,7 @@ Here are some ideas to get you started:
 
 ## 我是by  🧊
 - 🌱 I’m currently learning in CUMT.
-- 💬 微信：yanbingcumt
+- 💬 微信：luckyzzbby
 - 👬 QQ :2814825681
 
 ## 汇总 ✨
